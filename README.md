@@ -1,11 +1,13 @@
 ## Hi there 👋
-gosto de pizza
+gosto de pizza🍕
 
-amo jogar bola
+amo jogar bola⚽
 
-sou atleta amador
-gosto de cuzinhar
-gosto dos meus amigos
+sou atleta amador🥇
 
-Here are some ideas to get you started:
+gosto de mecanica🧑‍🔧
+
+gosto dos meus amigos🙍‍♂️
+
+
 
