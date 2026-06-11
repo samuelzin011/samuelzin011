@@ -1,17 +1,17 @@
 ## Hi there 👋
 
-## gosto de pizza🍕
+## Gosto de pizza🍕
 
-## amo jogar bola⚽
+## Amo jogar bola⚽
 
-## sou atleta amador🥇
+## Sou atleta amador🥇
 
-## gosto de mecanica🧑‍🔧
+## Gosto de mecanica🧑‍🔧
 
-## gosto dos meus amigos🙍‍♂️
+## Gosto dos meus amigos🙍‍♂️
 
 ![](https://media1.tenor.com/m/GnT6WEh2xYkAAAAC/cat-showercap-slyonicz.gif)
 
-_entre em contado comigo_
+_Entre em contado comigo_
 
-ig:@samue_lzin_011 samuel.michelin@escola.pr.gov.br
+Ig:@samue_lzin_011 samuel.michelin@escola.pr.gov.br
