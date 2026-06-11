@@ -1,7 +1,9 @@
 ## Hi there 👋
-
-<!--
-**samuelzin011/samuelzin011** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+gosto de pizza
+amo jogar bola
+sou atleta amador
+gosto de cuzinhar
+gosto dos meus amigos
 
 Here are some ideas to get you started:
 
