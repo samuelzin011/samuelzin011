@@ -9,5 +9,4 @@ gosto de mecanica🧑‍🔧
 
 gosto dos meus amigos🙍‍♂️
 
-
-
+![](https://media1.tenor.com/m/GnT6WEh2xYkAAAAC/cat-showercap-slyonicz.gif)
